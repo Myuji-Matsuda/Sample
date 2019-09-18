@@ -1,1 +1,1 @@
-# Sampleですって
+# Sampleですってよ
